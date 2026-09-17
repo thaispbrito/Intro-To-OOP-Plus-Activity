@@ -21,8 +21,8 @@ Talk through each section with your team. Add notes on what you discussed and ag
 *Other co-working agreements that were not captured in the above sections.*
 
 ## Signatures
-_______________
-_______________
-_______________
-_______________
-Date: _________
+Nada Feteiha
+Valerie Chon
+Thais Palma de Brito
+Porselvi Lakshminarayanan
+Date: 09/172026
